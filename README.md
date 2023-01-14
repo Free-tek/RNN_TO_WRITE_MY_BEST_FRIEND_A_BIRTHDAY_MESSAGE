@@ -35,12 +35,6 @@ Happy birthday to my best friend that you simply have got a shock in the foremos
 “I hope you have got a good day.
 
 - - - - - - -
-“I hope you have got a good day.
-- - - - - - -
-“I hope you have got a good day. 
-
-- 
-
 "I trust you have got a good day.
 
 - - - - - - -
@@ -52,9 +46,6 @@ Happy birthday to my best friend that you simply have got a shock in the foremos
 “I hope you have got a good day.
 
 - - - - - - -
-“I hope you have got a good day.
-
--
 
 "I trust you have got a good day.
 
